@@ -1,0 +1,1 @@
+My name is Adrian S Amoroso, or Ian. I am currently working as a production operator in Paranaque city. I like to play sports and video games during my free time. My goal right now is to continue to study and hopefully finish my web development course here in Refocus. I want to be a web developer to shift career and find a good paying job in the tech. industry.
